@@ -10,7 +10,9 @@
 
 ## Activities
 - snorkeling: https://guidetothephilippines.ph/articles/ultimate-guides/bohol-travel-guide#go-island-hopping-on-pamilacan-island-and-balicasag-island
-    * swim with whale sharks, turtle & sardines (looots of them)
+    * swim with ~~whale sharks~~, turtle & sardines (looots of them)
+    * ok, maybe not whale sharks, iffy conditions there: https://stingynomads.com/oslob-whale-sharks/
+
 - CHOCOLATE HILLS!!!
 - [zip line](https://guidetothephilippines.ph/articles/ultimate-guides/bohol-travel-guide#try-fun-bohol-activities)
 - Cute monkeys - [tarsiers](https://guidetothephilippines.ph/articles/ultimate-guides/bohol-travel-guide#try-fun-bohol-activities)
