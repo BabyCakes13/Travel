@@ -10,7 +10,7 @@
 
 ## Activities
 - Canopy Walk ([tripadvisor](https://www.tripadvisor.com/Attraction_Review-g294256-d10353205-Reviews-Taraw_Cliff-El_Nido_Palawan_Island_Palawan_Province_Mimaropa.html)): 1-2hrs
-- Boat tours:
+- Boat tours - private if possible:
     * https://www.elnidoparadise.com/island-hopping/el-nido-tours/
     * Recommend tours A & C
     * A has cool lagoons
