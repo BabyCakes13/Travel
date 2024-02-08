@@ -26,6 +26,9 @@
   - they sell-out
 - ask locals about better options
 
+# Transportaion
+- Ferry info: https://ferry-finder.com/
+
 # Communication
 - buy a SIM/portable WiFi hotspot
 - internet poor in El Nido
